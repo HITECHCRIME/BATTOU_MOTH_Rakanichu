@@ -32,7 +32,7 @@ salted the circle myself aye
 
 
 no bow to demi-god, (ukłoń się)
-nauczka nie płynie, jesteś już martwy
+no aprendiste la lección, jesteś już martwy (nauczka nie płynie)
 si ya estas muerto, you're already dead
 
 
