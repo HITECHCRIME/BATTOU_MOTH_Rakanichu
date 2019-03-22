@@ -23,7 +23,7 @@ all in my head
 battou de la sangre to gang
 las tundas are feasting my brain (cloning my)
 
-my mind is so blank, rakanichu not bowingn
+rakanichu mind is so blank (not bowing) 
 my morning ritual never in vain
 ever so vengeful
 carved into stone
