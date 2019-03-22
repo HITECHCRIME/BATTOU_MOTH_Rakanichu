@@ -30,7 +30,8 @@ missing my game
 long way to trek yeah
 salted the circle myself aye 
 
-no bow no bow no bow to demi-god (ukłoń się)
+
+no bow to demi-god, (ukłoń się)
 nauczka nie płynie, jesteś już martwy
 si ya estas muerto, you're already dead
 
