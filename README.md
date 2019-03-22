@@ -31,9 +31,11 @@ carved into stone
 your life is resentful
 missing my game 
 long way to trek yeah
-salted the circle myself aye
-bow bow bow before a demi-god 
-(carved it myself)
+salted the circle myself aye (carved it myself)
+bow bow bow ukłoń się, demi-god 
+nauczka z tego nie płynie 
+when you're already dead (add more colombian)
+
 
 
 
