@@ -1,5 +1,7 @@
 # HC_Battousaigang_x_MOTHNODE_Rakanichu
 
+[MOTHNODE]
+
 ey ey
 
 battousaigang / mothnode
@@ -9,10 +11,6 @@ ya
 right
 bring it up
 burn the demon
-x
-x
-x
-x
 
 hijo de puta - mówi, że i nie słyszał, (że już nie słyszał)
 ale nie posłuchał ye - sangre del sueno 
@@ -31,7 +29,7 @@ long way to trek yeah
 salted the circle myself aye 
 
 offbeat - jesteś już martwy (nauczka nie płynie)
-si ya estas muerto, (you're) already dead
+si ya estas muerto, you're already dead
 
 no bow to the demi-god, (ukłoń się)
 no aprendiste la lección 
