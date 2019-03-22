@@ -4,21 +4,31 @@ ey ey
 
 battousaigang / mothnode
 
-ey ya
-
+ey ey 
+ya
+right
+bring it up
+burn the demon
 x
 x
 x
 x
 
-hijo de puta mówi, że i nie słyszał 
-ale nie posłuchał ye
+hijo de puta - mówi, że i nie słyszał 
+ale nie posłuchał ey
 de sangre del sueno
 la tunda boraros virunas
 all in my head
 
-battousai czy doppel to gang las tundas 
-are feasting my brain
+battou de la sangre to gang
+las tundas are feasting my brain (cloning my)
+
+my mind is so blank, bow rakanichu
+my morning ritual so painful
+carved into stone
+
+demi-god
+
 
 la tunda - vampire doppelganger
 boraro - the pale ones
