@@ -30,10 +30,13 @@ missing my game
 long way to trek yeah
 salted the circle myself aye 
 
+offbeat - jesteś już martwy (nauczka nie płynie)
+si ya estas muerto, (you're) already dead
 
-no bow to demi-god, (ukłoń się)
-no aprendiste la lección, jesteś już martwy (nauczka nie płynie)
-si ya estas muerto, you're already dead
+no bow to the demi-god, (ukłoń się)
+no aprendiste la lección 
+
+
 
 
 
