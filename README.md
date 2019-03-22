@@ -26,7 +26,7 @@ my morning ritual never in vain
 
 ever so vengeful, carved into stone
 your life is resentful
-missing my game 
+missing your game 
 long way to trek yeah
 salted the circle myself aye 
 
