@@ -14,7 +14,7 @@ x
 x
 x
 
-hijo de puta - mówi, że i nie słyszał, 
+hijo de puta - mówi, że i nie słyszał, (że już nie słyszał)
 ale nie posłuchał ye - sangre del sueno 
 la tunda boraros virunas all in my head
 
@@ -30,7 +30,7 @@ missing my game
 long way to trek yeah
 salted the circle myself aye 
 nauczka z tego nie płynie, jesteś już martwy
-si ya estas muerto, you're already dead
+si ya estas muerto, (you're) already dead
 
 no bow no bow no bow to demi-god, ukłoń się, 
 (carved it myself)
