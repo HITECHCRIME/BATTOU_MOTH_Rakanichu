@@ -16,7 +16,7 @@ x
 
 hijo de puta - mówi, że i nie słyszał 
 ale nie posłuchał ey
-de sangre del sueno
+- sangre del sueno
 la tunda boraros virunas
 all in my head
 
@@ -24,10 +24,10 @@ battou de la sangre to gang
 las tundas are feasting my brain (cloning my)
 
 my mind is so blank, bow rakanichu
-my morning ritual so painful (never in vain)
+my morning ritual never in vain
 ever so vengeful
 carved into stone
-missing my game
+missing my game yeah
 
 demi-god
 
