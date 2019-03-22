@@ -15,19 +15,29 @@ x
 x
 
 hijo de puta - mówi, że i nie słyszał 
-ale nie posłuchał ey
+ale nie posłuchał ye
 - sangre del sueno
 la tunda boraros virunas
 all in my head
 
 battou de la sangre to gang
-las tundas are feasting my brain (cloning my)
+las tundas are feasting my brain
 
-rakanichu mind is so blank (not bowing) 
+rakanichu mind is so blank
 my morning ritual never in vain
+
 ever so vengeful
 carved into stone
-missing my game yeah
+your life is resentful
+missing my game 
+long way to trek yeah
+salted the circle myself aye
+bow bow bow before a demi-god 
+(carved it myself)
+
+
+
+
 
 demi-god
 
