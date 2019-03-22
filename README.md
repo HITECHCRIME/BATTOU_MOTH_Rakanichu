@@ -32,7 +32,7 @@ offbeat - jesteś już martwy (nauczka nie płynie)
 si ya estas muerto, you're already dead
 
 no bow to the demi-god, (ukłoń się)
-no aprendiste la lección 
+no aprendiste la lección  
 
 
 
