@@ -9,6 +9,7 @@ right
 bring it up
 burn the demon
 
+DO THIS QUICKER SO IT ENDS ON BRAAAAIN
 hijo de puta - mówi, że i nie słyszał
 ale nie posłuchał mnie - 
 sangre del sueno 
@@ -16,7 +17,7 @@ la tunda boraros virunas
 all in my head
 
 battou de la sangre to gang 
-las tundas are feasting my brain ye
+las tundas are feasting my brain ye 
 
 aprendiste la lección mind is so blank  
 my morning ritual never in vain
