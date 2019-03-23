@@ -56,4 +56,12 @@ virunas mandigas
 all in my fucking head
 
 no bow to the demi-god, (ukłoń się)
+
+----
+
+# MUSIC VIDEO
+
+imagine that you are somewhere deep in the woods and your friend turned his back on you and is running through the woods to save himself and is being hunted by demons while you made a salt circle around yourself, your friend is too far to reach back the salt circle and you know he's gonna die while abandoning you
+
+
   
