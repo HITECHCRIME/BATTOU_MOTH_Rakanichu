@@ -10,21 +10,24 @@ bring it up
 burn the demon
 
 DO THIS QUICKER SO IT ENDS ON BRAAAAIN
-hijo de puta - mówi, że i nie słyszał
+hijo de puta - 
+mówi, że i nie słyszał
 ale nie posłuchał mnie - 
 sangre del sueno 
-la tunda boraros virunas 
+la tunda 
+boraros 
+virunas 
 all in my head
-
 battou de la sangre to gang 
-las tundas are feasting my brain ye 
+las tundas are feasting my brain (-ye) 
 
-aprendiste la lección mind is so blank  
+aprendiste la lección mind so blank  
 my morning ritual never in vain
 
 ever so vengeful, carved into stone
 your life is resentful
 missing your game 
+
 long way to trek yeah
 salted the circle myself aye 
 
