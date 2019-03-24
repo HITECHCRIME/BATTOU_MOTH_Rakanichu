@@ -14,25 +14,24 @@ hijo de puta -
 mówi, że i nie słyszał
 ale nie posłuchał mnie - 
 sangre del sueno 
-la tunda 
-boraros 
-virunas 
-all in my head
+la tunda boraros 
+virunas all in my head
 battou de la sangre to gang 
-las tundas are feasting my brain (-ye) 
+las tundas are feasting my brain (-ye)  
 
-aprendiste la lección mind so blank  
-my morning ritual never in vain
+clearly insane for a mind so blank 
+my morning ritual 
+never in vain 
 
 ever so vengeful, carved into stone
 your life is resentful
 missing your game 
 
-long way to trek yeah
-salted the circle myself aye 
+long way to trek (yeah)
+salted the circle myself (aye) 
 
 (offbeat) - jesteś już martwy
-si ya estas muerto, you're already dead
+si ya estas muerto, you're already dead (yeah)
 
 
 
@@ -41,6 +40,8 @@ si ya estas muerto, you're already dead
 
 
 demi-god
+
+la lección esta fallida
 
 
 la tunda - vampire doppelganger
@@ -60,7 +61,8 @@ virunas mandigas
 all in my fucking head
 
 no bow to the demi-god, (ukłoń się)
-
+aprendiste la lección
+apprendiste la leccion
 ----
 
 # MUSIC VIDEO
