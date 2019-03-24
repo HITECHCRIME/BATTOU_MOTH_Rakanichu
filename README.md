@@ -17,7 +17,7 @@ sangre del sueno
 la tunda boraros 
 virunas all in my head
 battou de la sangre to gang 
-las tundas are feasting my brain (-ye)  
+las tundas be twisting my brain (-ye)  
 
 clearly insane for a mind so blank 
 my morning ritual 
