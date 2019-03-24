@@ -18,8 +18,8 @@ virunas all in my head
 battou de la sangre to gang 
 las tundas are twisting my brain (-ye)  
 
-clearly insane for a mind to be blank 
-my morning ritual 
+drifting insane, mind going blank 
+that morning ritual 
 never in vain 
 
 ever so vengeful, carved into stone
