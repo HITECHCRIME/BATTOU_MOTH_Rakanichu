@@ -19,7 +19,7 @@ battou de la sangre to gang
 las tundas are twisting my brain (-ye)  
 
 fully insane when mind goes blank (mind goes blank) damn
-run morning ritual 
+(run) morning ritual 
 never in vain 
 
 ever so vengeful, carved into stone
