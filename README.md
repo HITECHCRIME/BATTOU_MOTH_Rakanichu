@@ -12,7 +12,8 @@
 
 ## Lyrics
 
-```[MOTHNODE INTRO]
+```
+[MOTHNODE]
 ey ey
 battousaigang / 
 monki satsu mothnode
@@ -21,8 +22,6 @@ ya
 right
 bring it up
 burn the demon
-
-[MOTHNODE VERSES]
 
 hijo de puta, mówi, że _i nie słyszał_
 ale _nie posłuchał_ mnie
@@ -46,7 +45,9 @@ salted the circle myself (aye)
 rojo battou
 
 jesteś już martwy, si ya estas muerto, 
-you're already dead (yeah)```
+you're already dead (yeah)
+
+```
 
 
 [MONKI]
