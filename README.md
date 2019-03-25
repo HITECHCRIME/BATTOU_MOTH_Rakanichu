@@ -33,22 +33,21 @@ burn the demon
 
 [MOTHNODE VERSES]
 
-hijo de puta, mówi, że i nie słyszał
+hijo de puta, mówi, że _i nie słyszał_
 
-ale nie posłuchał mnie
+ale _nie posłuchał_ mnie
 
 sangre del sueno, la tunda, boraros 
 
-virunas _all in my head_
+virunas _all in my head_  (all in my head)
 
-_al rojo battou_ 
 
-battou de la sangre to gang 
+_battou de la sangre_ to gang 
 
 las tundas are twisting my brain (-ye)  
 
 
-_demi-god reign_ / battou al rojo / al rojo battou (whole squad says it)
+_demi-god reigns_ / battou al rojo / al rojo battou (whole squad says it)
 
 
 fully insane when the mind goes blank 
@@ -65,6 +64,9 @@ your life is resentful, missing your game _ey_
 long way to trek (yeah)
 
 salted the circle myself (aye) 
+
+
+rojo battou
 
 
 jesteś już martwy, si ya estas muerto, 
