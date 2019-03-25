@@ -41,7 +41,7 @@ sangre del sueno, la tunda, boraros
 
 virunas _all in my head_
 
-
+battou al rojo
 
 battou de la sangre to gang 
 
