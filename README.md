@@ -2,7 +2,7 @@
 
 [SONG COVER]
 
-## Data
+## Baseline Data
 
 **Title:** Rakanichu | **Featuring:** Battousaigang (Monki, Satsugai) x MOTHNODE
 
@@ -10,65 +10,42 @@
 
 ---
 
-[MOTHNODE INTRO]
+## Lyrics
 
-```ey ey
-
+```[MOTHNODE INTRO]
+ey ey
 battousaigang / 
-
 monki satsu mothnode
-
 ey ey 
-
 ya
-
 right
-
 bring it up
-
 burn the demon
-
 
 [MOTHNODE VERSES]
 
 hijo de puta, mówi, że _i nie słyszał_
-
 ale _nie posłuchał_ mnie
-
 sangre del sueno, la tunda, boraros 
-
 virunas _all in my head_  (all in my head)
 
-
 _battou de la sangre_ to gang 
-
 las tundas are twisting my brain (-ye)  
-
 
 _demi-god reigns_ / battou al rojo / al rojo battou (whole squad says it)
 
-
 fully insane when the mind goes blank 
-
 damn run morning ritual
-
 never in vain 
 
-
 ever so vengeful, carved into stone
-
 your life is resentful, missing your game _ey_
-
 long way to trek (yeah)
-
 salted the circle myself (aye) 
-
 
 rojo battou
 
-
 jesteś już martwy, si ya estas muerto, 
-
 you're already dead (yeah)```
 
 
