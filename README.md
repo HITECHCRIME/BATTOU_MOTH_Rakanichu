@@ -29,21 +29,23 @@ virunas _all in my head_  (all in my head)
 _battou de la sangre_ to gang 
 las tundas are twisting my brain (-ye)  
 
-_demi-god reigns_ / battou al rojo / al rojo battou (whole squad says it)
+_demi-god reigns_ / battou al rojo / al rojo battou (whole group says it?)
 
 fully insane when the mind goes blank 
 damn run morning ritual
 never in vain 
 
 ever so vengeful, carved into stone
-your life is resentful, missing your game _ey_
+your life is resentful, missing your game _ey_ (?)
 long way to trek (yeah)
 salted the circle myself (aye) 
 
-rojo battou
+rojo battou (?)
 
 jesteś już martwy, si ya estas muerto, 
 you're already dead (yeah)
+
+battousai al rojo (?)
 
 [MONKI]
 
