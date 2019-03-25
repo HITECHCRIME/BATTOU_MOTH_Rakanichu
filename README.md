@@ -4,6 +4,8 @@ Sogn Cover Art by whoskarisma
 
 ## Data
 
+Song mixes Colombian, English and Polish languages in its verses.
+
 **Title:** Rakanichu | **Featuring:** Battousaigang (Monki, Satsugai) x MOTHNODE
 
 **Production:** Monki | **Lyrics:** Monki, Satsugai, MOTHNODE
