@@ -38,7 +38,7 @@ damn run morning ritual
 never in vain 
 
 ever so vengeful, carved into stone
-your life is resentful, missing your game _ey_ (?)
+your life is resentful, missing your game _ya_ (?)
 long way to trek (yeah)
 salted the circle myself (aye) 
 
