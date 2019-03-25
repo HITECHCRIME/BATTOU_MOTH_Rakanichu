@@ -8,6 +8,8 @@
 
 **Lyrics:** Moki, Satsugai, MOTHNODE_
 
+---
+
 [MOTHNODE INTRO]
 ey ey
 battousaigang / 
