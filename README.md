@@ -4,11 +4,11 @@
 
 **Title:** Rakanichu
 
-**Featuring:** Moki, Satsugai, MOTHNODE_
+**Featuring:** Monky, Satsugai, MOTHNODE_
 
-**Production:** Moki
+**Production:** Monky
 
-**Lyrics:** Moki, Satsugai, MOTHNODE_
+**Lyrics:** Monky, Satsugai, MOTHNODE_
 
 ---
 
