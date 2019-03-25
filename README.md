@@ -39,12 +39,16 @@ ale nie posłuchał mnie
 
 sangre del sueno, la tunda, boraros 
 
-virunas all in my head
+virunas _all in my head_
+
 
 
 battou de la sangre to gang 
 
 las tundas are twisting my brain (-ye)  
+
+
+_demi-god reign_
 
 
 fully insane when the mind goes blank 
