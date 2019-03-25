@@ -2,7 +2,7 @@
 
 Sogn Cover Art by whoskarisma
 
-## Baseline Data
+## Data
 
 **Title:** Rakanichu | **Featuring:** Battousaigang (Monki, Satsugai) x MOTHNODE
 
