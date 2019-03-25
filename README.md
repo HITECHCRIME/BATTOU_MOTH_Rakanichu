@@ -1,8 +1,9 @@
-# HC_Battousaigang_x_MOTHNODE_Rakanichu
+# Battousaigang_x_MOTHNODE_Rakanichu
 
 [MOTHNODE INTRO]
 ey ey
-battousaigang / mothnode
+battousaigang / 
+monki satsu mothnode
 ey ey 
 ya
 right
@@ -31,6 +32,9 @@ jesteś już martwy, si ya estas muerto,
 you're already dead (yeah)
 
 [MONKI]
+
+
+[SATSUGAI]
 
 
 
