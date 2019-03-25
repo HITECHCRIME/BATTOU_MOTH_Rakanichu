@@ -48,7 +48,7 @@ battou de la sangre to gang
 las tundas are twisting my brain (-ye)  
 
 
-_demi-god reign_ / battou al rojo / al rojo battou
+_demi-god reign_ / battou al rojo / al rojo battou (whole squad says it)
 
 
 fully insane when the mind goes blank 
