@@ -8,12 +8,10 @@
 
 **Production:** Monki | **Lyrics:** Monki, Satsugai, MOTHNODE
 
----
-
 ## Lyrics
-
 ```
 [MOTHNODE]
+
 ey ey
 battousaigang / 
 monki satsu mothnode
@@ -47,35 +45,24 @@ rojo battou
 jesteś już martwy, si ya estas muerto, 
 you're already dead (yeah)
 
-```
-
-
 [MONKI]
-
 
 [SATSUGAI]
 
+```
+## Notes
 
+demi-god, la lección esta fallida
 
-
-
-
-
-demi-god
-
-la lección esta fallida
-
-
-la tunda - vampire doppelganger
-boraro - the pale ones
-virunas mandigas (Satan representation)
-stone circle
-carver
-demon
-demi-god
-ritual
-bow before
-
+la tunda - vampire doppelganger, 
+boraro - the pale ones, 
+virunas mandigas (Satan representation), 
+stone circle, 
+carver, 
+demon, 
+demi-god, 
+ritual, 
+bow before, 
 
 no rakanichu
 boraro
@@ -87,9 +74,9 @@ aprendiste la lección
 apprendiste la leccion
 ----
 
-# MUSIC VIDEO
+## MUSIC VIDEO
 
-imagine that you are somewhere deep in the woods and your friend turned his back on you and is running through the woods to save himself and is being hunted by demons while you made a salt circle around yourself, your friend is too far to reach back the salt circle and you know he's gonna die while abandoning you
+"imagine that you are somewhere deep in the woods and your friend turned his back on you and is running through the woods to save himself and is being hunted by demons while you made a salt circle around yourself, your friend is too far to reach back the salt circle and you know he's gonna die while abandoning you"
 
 at the beginning "i nie usłyszał" there is a slowmo scene where your friend is explaining to you that he didn't hear you to give context to the unusual phrasing.
 
