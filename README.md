@@ -41,14 +41,14 @@ sangre del sueno, la tunda, boraros
 
 virunas _all in my head_
 
-battou al rojo
+_al rojo battou_ 
 
 battou de la sangre to gang 
 
 las tundas are twisting my brain (-ye)  
 
 
-_demi-god reign_ / battou al rojo
+_demi-god reign_ / battou al rojo / al rojo battou
 
 
 fully insane when the mind goes blank 
@@ -60,7 +60,7 @@ never in vain
 
 ever so vengeful, carved into stone
 
-your life is resentful, missing your game 
+your life is resentful, missing your game _ey_
 
 long way to trek (yeah)
 
