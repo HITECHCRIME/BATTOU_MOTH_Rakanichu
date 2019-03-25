@@ -24,24 +24,39 @@ burn the demon
 
 [MOTHNODE VERSES]
 hijo de puta, mówi, że i nie słyszał
+
 ale nie posłuchał mnie
+
 sangre del sueno, la tunda, boraros 
+
 virunas all in my head
 
+
 battou de la sangre to gang 
+
 las tundas are twisting my brain (-ye)  
 
+
 fully insane when the mind goes blank 
+
 damn run morning ritual
+
 never in vain 
 
+
 ever so vengeful, carved into stone
+
 your life is resentful, missing your game 
+
 long way to trek (yeah)
+
 salted the circle myself (aye) 
 
+
 jesteś już martwy, si ya estas muerto, 
+
 you're already dead (yeah)
+
 
 [MONKI]
 
