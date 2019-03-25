@@ -12,7 +12,7 @@
 
 [MOTHNODE INTRO]
 
-ey ey
+```ey ey
 
 battousaigang / 
 
@@ -69,7 +69,7 @@ rojo battou
 
 jesteś już martwy, si ya estas muerto, 
 
-you're already dead (yeah)
+you're already dead (yeah)```
 
 
 [MONKI]
