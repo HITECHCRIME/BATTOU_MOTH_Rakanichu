@@ -1,6 +1,6 @@
 # Battousaigang x MOTHNODE_ Rakanichu
 
-[SONG COVER]
+Sogn Cover Art by whoskarisma
 
 ## Baseline Data
 
