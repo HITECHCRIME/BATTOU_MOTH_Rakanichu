@@ -1,5 +1,7 @@
 # Battousaigang x MOTHNODE_ Rakanichu
 
+---
+
 **Title:** Rakanichu
 
 **Featuring:** Moki, Satsugai, MOTHNODE_
