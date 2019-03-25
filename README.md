@@ -13,16 +13,26 @@
 ---
 
 [MOTHNODE INTRO]
+
 ey ey
+
 battousaigang / 
+
 monki satsu mothnode
+
 ey ey 
+
 ya
+
 right
+
 bring it up
+
 burn the demon
 
+
 [MOTHNODE VERSES]
+
 hijo de puta, mówi, że i nie słyszał
 
 ale nie posłuchał mnie
