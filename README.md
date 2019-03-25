@@ -5,6 +5,7 @@
 ## Data
 
 **Title:** Rakanichu | **Featuring:** Battousaigang (Monki, Satsugai) x MOTHNODE
+
 **Production:** Monki | **Lyrics:** Monki, Satsugai, MOTHNODE
 
 ---
