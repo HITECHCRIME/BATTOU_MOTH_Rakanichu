@@ -1,8 +1,11 @@
 # Battousaigang x MOTHNODE_ Rakanichu
 
 **Title:** Rakanichu
+
 **Featuring:** Moki, Satsugai, MOTHNODE_
+
 **Production:** Moki
+
 **Lyrics:** Moki, Satsugai, MOTHNODE_
 
 [MOTHNODE INTRO]
