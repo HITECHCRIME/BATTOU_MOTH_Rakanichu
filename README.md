@@ -1,14 +1,11 @@
 # Battousaigang x MOTHNODE_ Rakanichu
 
----
+[SONG COVER]
 
-**Title:** Rakanichu
+## Data
 
-**Featuring:** Monky, Satsugai, MOTHNODE_
-
-**Production:** Monky
-
-**Lyrics:** Monky, Satsugai, MOTHNODE_
+**Title:** Rakanichu | **Featuring:** Battousaigang (Monki, Satsugai) x MOTHNODE
+**Production:** Monki | **Lyrics:** Monki, Satsugai, MOTHNODE
 
 ---
 
