@@ -31,7 +31,7 @@ virunas _all in my head_  (all in my head)
 _battou de la sangre_ to gang 
 las tundas are twisting my brain (-ye)  
 
-_demi-god reigns_ / battou al rojo / al rojo battou (whole group says it?)
+_demigod reigns_ / demigod bows/ battou al rojo / al rojo battou (whole group says it?)
 
 fully insane when the mind goes blank 
 damn run morning ritual
