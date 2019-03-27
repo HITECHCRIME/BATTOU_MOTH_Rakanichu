@@ -31,7 +31,7 @@ virunas _all in my head_  (all in my head)
 _battou de la sangre_ to gang 
 las tundas are twisting my brain (-ye)  
 
-_demigod reigns_ / demigod bows/ battou al rojo / al rojo battou (whole group says it?)
+_demigod reigns_
 
 fully insane when the mind goes blank 
 damn run morning ritual
@@ -57,6 +57,8 @@ battousai al rojo (?)
 ## Notes
 
 demi-god, la lección esta fallida
+
+demigod bows/ battou al rojo / al rojo battou (whole group says it?)
 
 la tunda - vampire doppelganger, 
 boraro - the pale ones, 
