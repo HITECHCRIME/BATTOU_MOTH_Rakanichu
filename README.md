@@ -31,7 +31,7 @@ virunas _all in my head_
 
 _battou de la sangre_ to gang 
 las tundas are twisting my brain (-ye)  
-(_demigod reigns_) (monki) (demigod carver) (demigod carves)
+(_demigod reigns_) (monki/satsu) (demigod carver) (demigod carves)
 
 fully insane when the mind goes blank 
 damn run morning ritual never in vain 
