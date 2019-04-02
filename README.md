@@ -23,16 +23,15 @@ quemar el demonio
 ey ey ya right
 try to bring it up
 
-
 hijo de puta, mówi, że _i nie słyszał_
 ale _nie posłuchał_ mnie
 sangre del sueno, la tunda, boraros 
-virunas _all in my head_  (all in my head)
+virunas _all in my head_  
+(all in my head)
 
 _battou de la sangre_ to gang 
 las tundas are twisting my brain (-ye)  
-
-_demigod reigns_ (monki)
+(_demigod reigns_) (monki)
 
 fully insane when the mind goes blank 
 damn run morning ritual never in vain 
@@ -64,8 +63,8 @@ llegan las perras
 y entran en panico
 acido todo el mundo palido
 salido de un cuadro pintado
-por un sadico maniatico (addon 0 maniatico)
-saco la mp5 (pow pow pow)
+por un sadico maniatico (Tim: addon - maniatico)
+saco la mp5 (Tim: addon - pow pow pow)
 y listo para hacerte anicos
 en este puto recinto
 nadie va a quedar vivo ya
