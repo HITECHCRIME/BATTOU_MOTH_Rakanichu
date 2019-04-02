@@ -71,6 +71,26 @@ nadie va a quedar vivo ya
 
 [SATSUGAI]
 
+tengo una bomba en el cuello 
+no ruego 
+vengo a declarar guerra 
+perra 
+te ves perdido con la sangre 
+saliendo de las venas 
+tus versos son pura gangrena 
+somo la aguja que te pincha y te envenena 
+con 3 psycopatas en cuarentena 
+
+justicia colombiana es una puta marrana 
+ni un solo año de condena 
+matarte vale la pena 
+tu ya estas muerto 
+you already death 
+toda tu sangre para la gang 
+tu ya estas muerto 
+hechalo directo en el hueco 
+hijos de puta no siembr
+
 ```
 ## Notes
 
