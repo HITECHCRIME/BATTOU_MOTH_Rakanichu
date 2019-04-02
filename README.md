@@ -16,7 +16,8 @@ Song mixes Colombian, English and Polish languages in its verses.
 
 ey ey
 
-monki satsu mothnode
+mothnode
+connected
 
 ey ey 
 ya
@@ -32,7 +33,7 @@ virunas _all in my head_  (all in my head)
 _battou de la sangre_ to gang 
 las tundas are twisting my brain (-ye)  
 
-_demigod reigns_
+_demigod reigns_ (monki)
 
 fully insane when the mind goes blank 
 damn run morning ritual never in vain 
@@ -42,14 +43,33 @@ your life is resentful, missing your game _ya_ (?)
 long way to trek (yeah)
 salted the circle myself (aye) 
 
-rojo battou (?)
-
 jesteś już martwy, si ya estas muerto, 
 you're already dead (yeah)
 
-battousai al rojo (?)
+rojo battou ya (?)
+battou al rojo (?)
+monki satsu
 
 [MONKI]
+
+battousaigang
+
+un polaco y dos colombianos
+ya estamos esperando aqui momento exacto (Tim addon - actooooooo)
+la gargola nos tiene en la mira
+noz casa uno a uno
+y en cuativerio nos efrece un trato
+tengo cuatro diablos en el atico (Tim: addon - en el atico)
+
+llegan las perras
+y entran en panico
+acido todo el mundo palido
+salido de un cuadro pintado
+por un sadico maniatico
+saco la mp5
+y listo para hacerte anicos
+en este puto recinto
+nadie va a quedar vivo ya
 
 [SATSUGAI]
 
