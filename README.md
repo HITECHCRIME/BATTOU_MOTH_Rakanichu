@@ -15,12 +15,13 @@ Song mixes Colombian, English and Polish languages in its verses.
 [MOTHNODE]
 
 ey ey
-battousaigang / 
+
 monki satsu mothnode
+
 ey ey 
 ya
 right
-bring it up
+try to bring it up
 burn the demon
 
 hijo de puta, mówi, że _i nie słyszał_
@@ -34,8 +35,7 @@ las tundas are twisting my brain (-ye)
 _demigod reigns_
 
 fully insane when the mind goes blank 
-damn run morning ritual
-never in vain 
+damn run morning ritual never in vain 
 
 ever so vengeful, carved into stone
 your life is resentful, missing your game _ya_ (?)
