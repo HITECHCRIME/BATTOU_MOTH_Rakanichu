@@ -11,19 +11,18 @@ Song mixes Colombian, English and Polish languages in its verses.
 **Production:** Monki | **Lyrics:** Monki, Satsugai, MOTHNODE
 
 ## Lyrics
+
 ```
 [MOTHNODE]
-
-ey ey
 
 mothnode
 connected
 
-ey ey 
-ya
-right
+quemar el demonio
+
+ey ey ya right
 try to bring it up
-burn the demon
+
 
 hijo de puta, mówi, że _i nie słyszał_
 ale _nie posłuchał_ mnie
@@ -65,8 +64,8 @@ llegan las perras
 y entran en panico
 acido todo el mundo palido
 salido de un cuadro pintado
-por un sadico maniatico
-saco la mp5
+por un sadico maniatico (addon 0 maniatico)
+saco la mp5 (pow pow pow)
 y listo para hacerte anicos
 en este puto recinto
 nadie va a quedar vivo ya
