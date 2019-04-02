@@ -18,7 +18,7 @@ Song mixes Colombian, English and Polish languages in its verses.
 mothnode  //////// <- electronic voice
 connected //////// <- electronic voice
 
-quemar el demonio
+quemar el demonio /////// <- electronic voice (?)
 
 ey ey ya right
 try to bring it up
