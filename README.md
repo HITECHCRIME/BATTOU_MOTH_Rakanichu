@@ -47,7 +47,7 @@ jesteś już martwy, si ya estas muerto,
 you're already dead (yeah)
 
 rojo battou ya (?)
-battou al rojo (?)
+battou al rojo (?) when moth appears
 monki satsu
 
 [MONKI]
