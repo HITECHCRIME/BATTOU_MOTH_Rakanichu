@@ -44,7 +44,7 @@ salted the circle myself (aye)
 jesteś już martwy, si ya estas muerto, 
 you're already dead (yeah)
 
-rojo battou ya (?)
+rojo battou ya (?) cuando aparece una polilla
 battou al rojo (?) when moth appears
 monki satsu
 
