@@ -23,8 +23,8 @@ quemar el demonio /////// <- electronic voice
 ey ey ya right
 try to bring it up
 
-hijo de puta, mówi, że _i nie słyszał_
-ale _nie posłuchał_ mnie
+hijo de puta, mówi, że i nie słyszał
+ale nie posłuchał mnie
 sangre del sueno, la tunda, boraros 
 virunas _all in my head_  
 (all in my head)
