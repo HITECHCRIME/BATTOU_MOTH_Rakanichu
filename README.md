@@ -105,6 +105,7 @@ stone circle,
 carver, 
 demon, 
 demi-god, 
+
 ritual, 
 bow before, 
 
