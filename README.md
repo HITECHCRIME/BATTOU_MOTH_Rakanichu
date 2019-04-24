@@ -43,6 +43,7 @@ salted the circle myself aye
 jesteś już martwy, si ya estas muerto, 
 you're already dead
 
+x
 rojo battou 
 
 [MONKI]
@@ -50,18 +51,18 @@ rojo battou
 battousaigang
 
 un polaco y dos colombianos
-ya estamos esperando aqui momento exacto (Tim addon - actooooooo)
+ya estamos esperando aqui momento exacto
 la gargola nos tiene en la mira
 noz casa uno a uno
 y en cuativerio nos efrece un trato
-tengo cuatro diablos en el atico (Tim: addon - en el atico)
+tengo cuatro diablos en el atico
 
 llegan las perras
 y entran en panico
 acido todo el mundo palido
 salido de un cuadro pintado
-por un sadico maniatico (Tim: addon - maniatico)
-saco la mp5 (Tim: addon - pow pow pow)
+por un sadico maniatico (maniatico)
+saco la mp5 (pow pow pow)
 y listo para hacerte anicos
 en este puto recinto
 nadie va a quedar vivo ya
