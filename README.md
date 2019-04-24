@@ -20,33 +20,30 @@ quemar el demonio
 mothnode
 connected
 
-ey ey ya right
+ey ey ya
 try to bring it up
 
 hijo de puta, mówi, że i nie słyszał
 ale nie posłuchał mnie
 sangre del sueno, la tunda, boraros 
-virunas _all in my head_  
+virunas all in my head 
 (all in my head)
 
-_battou de la sangre_ to gang 
+battou de la sangre to gang 
 las tundas are twisting my brain 
 demigod reigns
-
 fully insane when the mind goes blank 
 damn run morning ritual never in vain 
 
 ever so vengeful, carved into stone
-your life is resentful, missing your game _ya_ (?)
-long way to trek (yeah)
-salted the circle myself (aye) 
+your life is resentful, missing your game
+long way to trek yeah
+salted the circle myself aye
 
 jesteś już martwy, si ya estas muerto, 
-you're already dead (yeah)
+you're already dead
 
-rojo battou ya (?) cuando aparece una polilla
-battou al rojo (?) when moth appears
-monki satsu
+rojo battou 
 
 [MONKI]
 
@@ -117,6 +114,11 @@ all in my fucking head
 no bow to the demi-god, (ukłoń się)
 aprendiste la lección
 apprendiste la leccion
+
+ya (?) cuando aparece una polilla
+battou al rojo (?) when moth appears
+monki satsu
+
 ----
 
 ## MUSIC VIDEO
