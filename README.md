@@ -77,10 +77,8 @@ hijos de puta no siembr
 ```
 ## Notes
 
-demi-god, la lección esta fallida
-
+*demi-god, la lección esta fallida
 demigod bows/ battou al rojo / al rojo battou (whole group says it?)
-
 la tunda - vampire doppelganger, 
 boraro - the pale ones, 
 virunas mandigas (Satan representation), 
@@ -88,26 +86,22 @@ stone circle,
 carver, 
 demon, 
 demi-god, 
-
 ritual, 
 bow before, 
-
 no rakanichu
 boraro
 virunas mandigas
 all in my fucking head
-
 no bow to the demi-god, (ukłoń się)
 aprendiste la lección
 apprendiste la leccion
-
 ya (?) cuando aparece una polilla
 battou al rojo (?) when moth appears
-monki satsu
+monki satsu*
 
 ----
 
-## MUSIC VIDEO
+## Music Video
 
 "imagine that you are somewhere deep in the woods and your friend turned his back on you and is running through the woods to save himself and is being hunted by demons while you made a salt circle around yourself, your friend is too far to reach back the salt circle and you know he's gonna die while abandoning you"
 
