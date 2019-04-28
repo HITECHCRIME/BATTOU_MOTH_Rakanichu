@@ -1,6 +1,6 @@
-# Battousaigang x MOTHNODE_ Rakanichu
-
 ![](57175019_319474918741616_8502199518755923887_n.jpg)
+
+# Battousaigang x MOTHNODE_ Rakanichu
 
 ## Data
 
