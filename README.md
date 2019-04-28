@@ -18,18 +18,16 @@ quemar el demonio
 mothnode
 connected
 
-ey ey ya
-try to bring it up
+ey ya ey
+try to bring it up aye
 
 hijo de puta, mówi, że i nie słyszał
-ale nie posłuchał mnie
-sangre del sueno, la tunda, boraros 
-virunas all in my head 
+ale nie posłuchał mnie sangre del sueno
+la tunda, boraros virunas all in my head 
 (all in my head)
 
-battou de la sangre to gang 
-las tundas are twisting my brain 
-demigod reigns
+battou de la sangre to gang las tundas 
+are twisting my brain demigod reigns
 fully insane when the mind goes blank 
 damn run morning ritual never in vain 
 
@@ -38,11 +36,11 @@ your life is resentful, missing your game
 long way to trek yeah
 salted the circle myself aye
 
-jesteś już martwy, si ya estas muerto, 
+jesteś już martwy
+si ya estas muerto 
 you're already dead
 
-x
-rojo battou 
+rojo battou ya
 
 [MONKI]
 
@@ -68,10 +66,8 @@ nadie va a quedar vivo ya
 [SATSUGAI]
 
 tengo una bomba en el cuello 
-no ruego 
-vengo a declarar guerra 
-perra 
-te ves perdido con la sangre 
+no ruego vengo a declarar guerra 
+perra te ves perdido con la sangre 
 saliendo de las venas 
 tus versos son pura gangrena 
 somo la aguja que te pincha y te envenena 
