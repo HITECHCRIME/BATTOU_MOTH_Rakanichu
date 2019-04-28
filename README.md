@@ -1,7 +1,5 @@
 # Battousaigang x MOTHNODE_ Rakanichu
 
-Song Cover Art by whoskarisma
-
 ## Data
 
 Song mixes Colombian, English and Polish languages in its verses.
