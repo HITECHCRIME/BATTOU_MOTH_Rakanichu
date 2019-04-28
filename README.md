@@ -1,12 +1,14 @@
-![](57175019_319474918741616_8502199518755923887_n.jpg)
-
 # Battousaigang x MOTHNODE_ Rakanichu
+
+![](57175019_319474918741616_8502199518755923887_n.jpg)
 
 ## Data
 
 Part of Battousaigxng's 'Mala Energia' EP.
 
 Song mixes Colombian, English and Polish languages in its verses.
+
+---
 
 **Title:** Rakanichu
 
@@ -15,7 +17,6 @@ Song mixes Colombian, English and Polish languages in its verses.
 **Production:** Monki
 
 **Lyrics:** Monki, Satsugai, MOTHNODE
-
 
 ## Lyrics
 
