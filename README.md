@@ -12,8 +12,6 @@ Song mixes Colombian, English and Polish languages in its verses.
 ## Lyrics
 
 ```
-[MOTHNODE]
-
 quemar el demonio
 mothnode connected
 
