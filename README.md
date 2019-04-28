@@ -4,9 +4,7 @@
 
 ## Project Data
 
-Part of Battousaigxng's 'Mala Energia' EP.
-
-Song mixes Colombian, English and Polish languages in its verses.
+Part of Battousaigxng's 'Mala Energia' EP. Song mixes Colombian, English and Polish languages in its verses.
 
 **Title:** Rakanichu / **Featuring:** Battousaigang (Monki, Satsugai) x MOTHNODE
 
