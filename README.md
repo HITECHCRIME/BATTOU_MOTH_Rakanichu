@@ -10,6 +10,8 @@ Part of Battousaigxng's 'Mala Energia' EP. Song mixes Colombian, English and Pol
 
 **Production:** Monki / **Lyrics:** Monki, Satsugai, MOTHNODE
 
+**Soundcloud Link:** https://soundcloud.com/battousaigang/rakanichu-battousaigxng-x-mothnode
+
 ## Lyrics
 
 ```
