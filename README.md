@@ -2,6 +2,8 @@
 
 # Battousaigxng x MOTHNODE_ Rakanichu
 
+**Listen now:** https://soundcloud.com/battousaigang/rakanichu-battousaigxng-x-mothnode
+
 ## Project Data
 
 Part of Battousaigxng's 'Mala Energia' EP. Song mixes Colombian, English and Polish languages in its verses.
@@ -9,8 +11,6 @@ Part of Battousaigxng's 'Mala Energia' EP. Song mixes Colombian, English and Pol
 **Title:** Rakanichu / **Featuring:** Battousaigang (Monki, Satsugai) x MOTHNODE
 
 **Production:** Monki / **Lyrics:** Monki, Satsugai, MOTHNODE
-
-**Soundcloud Link:** https://soundcloud.com/battousaigang/rakanichu-battousaigxng-x-mothnode
 
 ## Lyrics
 
