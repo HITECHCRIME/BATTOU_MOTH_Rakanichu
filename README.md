@@ -75,6 +75,14 @@ hechalo directo en el hueco
 hijos de puta no siembr
 
 ```
+----
+
+## Music Video
+
+"imagine that you are somewhere deep in the woods and your friend turned his back on you and is running through the woods to save himself and is being hunted by demons while you made a salt circle around yourself, your friend is too far to reach back the salt circle and you know he's gonna die while abandoning you"
+
+at the beginning "i nie usłyszał" there is a slowmo scene where your friend is explaining to you that he didn't hear you to give context to the unusual phrasing.
+
 ## Notes
 
 *demi-god, la lección esta fallida
@@ -99,13 +107,6 @@ ya (?) cuando aparece una polilla
 battou al rojo (?) when moth appears
 monki satsu*
 
-----
-
-## Music Video
-
-"imagine that you are somewhere deep in the woods and your friend turned his back on you and is running through the woods to save himself and is being hunted by demons while you made a salt circle around yourself, your friend is too far to reach back the salt circle and you know he's gonna die while abandoning you"
-
-at the beginning "i nie usłyszał" there is a slowmo scene where your friend is explaining to you that he didn't hear you to give context to the unusual phrasing.
 
 
   
