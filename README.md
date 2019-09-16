@@ -107,6 +107,10 @@ ya (?) cuando aparece una polilla
 battou al rojo (?) when moth appears
 monki satsu*
 
+## Music Video
+
+For now made a YouTube audio format.
+
 
 
   
